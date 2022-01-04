@@ -1,5 +1,5 @@
 # portfolio
-
+ya google and youtube helped a lot
 ## will  make changes and put in more info 
 will buy an URL after its done
 <img width="1512" alt="Screen Shot 2022-01-04 at 12 52 58" src="https://user-images.githubusercontent.com/92129992/148103363-4a72c965-0577-4998-a404-040a3236369e.png">
